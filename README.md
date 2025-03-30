@@ -19,7 +19,9 @@
 
 - How you can reach me🔗:
     My email: rikusvr12@gmail.com
+  
     My LinedIn profile: www.linkedin.com/in/rikus-van-rooyen-117866229
+  
     My Discord profile: discordapp.com/users/746302166087499846
 
 
